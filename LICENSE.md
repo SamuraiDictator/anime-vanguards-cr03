@@ -1,4 +1,4 @@
-
+custom Script for anime vanguards offers the most advanced anime vanguards Script, with auto-collect and no cooldown. Perfect for dominating any
 
 
 
